@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ghistelle
+- 👋 Hi, I’m @flora
 - 👀 I’m interested in e-commerce and design
 - 🌱 I’m currently learning Web Design
 - 💞️ I’m looking to collaborate on any opportunity to create or disgn a web
